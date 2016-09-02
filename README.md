@@ -1,5 +1,4 @@
 # hello-world
-hii humans rk
+hello friends this  may hello world reposatry 
 
-humaan are like hubut what i am mad of;).
-i had taken on the moon and find them.
+
